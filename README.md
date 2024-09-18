@@ -1,1 +1,1 @@
-Звіт - https://docs.google.com/document/d/1pwzREOQpQLc7shpLEeyZldxYHAEuFiW0JsgNcbRNd8E/edit
+Звіт - https://docs.google.com/document/d/1pwzREOQpQLc7shpLEeyZldxYHAEuFiW0JsgNcbRNd8E/edit?usp=sharing
